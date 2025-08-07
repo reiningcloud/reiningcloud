@@ -1,5 +1,5 @@
 
-‎ ‎‎ ‎‎<p align="center">["How could you be so apathetic all the time, Ryujin Kang?"](https://www.tiktok.com/@cosmiiccomet/video/7515665114930957590?_r=1&_t=ZS-8ygK5lT8ltM)</p>
+‎<p align="center">["How could you be so apathetic all the time, Ryujin Kang?"](https://www.tiktok.com/@cosmiiccomet/video/7515665114930957590?_r=1&_t=ZS-8ygK5lT8ltM)</p>
 
 ‎<p align="center">![Alt Text](https://i.pinimg.com/736x/dd/77/fd/dd77fde44d190dbeaa81d7dad2ac8331.jpg)</p>
 
