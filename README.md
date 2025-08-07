@@ -1,6 +1,4 @@
 
-**reiningcloud/reiningcloud** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
  ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎‎ ‎  ["How could you be so apathetic all the time, Ryujin Kang?](https://www.tiktok.com/@cosmiiccomet/video/7515665114930957590?_r=1&_t=ZS-8ygK5lT8ltM)
 
 ![Alt Text](https://i.pinimg.com/736x/d7/15/14/d715148ef633f221c89caecb534e368b.jpg)
