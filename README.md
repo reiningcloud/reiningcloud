@@ -1,8 +1,8 @@
 <div align="center">
 
-[ʚ Waiting for delusion's wings to descend with inspiration... ɞ](https://vt.tiktok.com/ZS54t2Cqh/)
+[˗ˏˋ Eradicate all evil ˎˊ˗](https://vt.tiktok.com/ZS5qcd84m/)
 
-<img src="https://file.garden/aRliYxn-C17HIW_i/aod%20pfp.jpeg" width="500" height="500">
+<img src="https://file.garden/aRliYxn-C17HIW_i/611862241_1224078546531461_1346356993995181983_n.png" width="500" height="400">
 
 #### my labubus : [tissue](https://github.com/afterpain) ♡ [morri](https://github.com/KY0GEN) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/consquence) ♡ [kemi](https://github.com/enmitye)
 
@@ -10,6 +10,5 @@
 
 [rentry !](https://rentry.co/reiningcloud)‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ [ata !](https://reindrop.atabook.org)
 
-###### ragbros only pls ty
 </div>
 
