@@ -1,6 +1,6 @@
 <div align="center">
 
-[ʚ Waiting for delusion's wings to descend with inspiration... ɞ](https://vt.tiktok.com/ZS5AdeRWL/)
+[ʚ Waiting for delusion's wings to descend with inspiration... ɞ](https://vt.tiktok.com/ZS54t2Cqh/)
 
 <img src="https://file.garden/aRliYxn-C17HIW_i/aod%20pfp.jpeg" width="500" height="500">
 
