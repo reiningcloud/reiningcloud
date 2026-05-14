@@ -9,7 +9,7 @@ $$\color{#856aad} 𝄞⨾𓍢ִ໋   ‎‎‎ Rin-rin  ‎‎‎ 𓏲ּ𝄢 $$
 ![](https://komarev.com/ghpvc/?username=reiningcloud&color=856aad&style=plastic&label=raindrops+𓈒∘☁︎)  
 
 
-[rentry !](https://rentry.co/sulettamercury)‎ ‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ [ata !](https://reindrop.atabook.org)
+[info !](https://rentry.co/sulettamercury)‎ ‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ [ata !](https://reindrop.atabook.org)
 
 
 </div>
