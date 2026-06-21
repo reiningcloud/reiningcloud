@@ -6,7 +6,7 @@
 
 ###### links for info byiㅤ&ㅤsign my ata :P
 
-![](https://komarev.com/ghpvc/?username=reiningcloud&color=856aad&style=plastic&label=raindrops+𓈒∘☁︎)  
+![](https://komarev.com/ghpvc/?username=reiningcloud&color=856aad&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
 
 
 [RENTRY !](https://rentry.co/sulettamercury)‎ ‎ ‎ ‎‎‎‎‎ ㅤ‎ <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_66077743e76b34d1c67ea3fa27a779b2_065faa16_75.webp" width=25>‎‎ㅤ ‎ ‎‎ [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_66077743e76b34d1c67ea3fa27a779b2_065faa16_75.webp" width=25>‎ ‎ ‎ ㅤ‎‎ ‎ [SIGN ME !](https://reindrop.atabook.org)
