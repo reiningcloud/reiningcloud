@@ -9,7 +9,7 @@
 ![](https://komarev.com/ghpvc/?username=reiningcloud&color=856aad&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
 
 
-[RENTRY !](https://rentry.co/sulemio)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
+[RENTRY !](https://rentry.co/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
 
 <img src="https://file.garden/aRliYxn-C17HIW_i/mizimizi.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/zomst.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/suaa.png" width=105>
 
