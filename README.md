@@ -13,7 +13,7 @@
 
 <img src="https://file.garden/aRliYxn-C17HIW_i/mizimizi.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/zomst.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/suaa.png" width=105>
 
-###### cherished : [cyri](https://github.com/lesbianeus) ♡ [tissue](https://github.com/afterpain) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/conciliate) ♡ [kemi](https://github.com/enmitye) ♡ [ryo](https://github.com/mavuikas)
+###### cherished : [cyri](https://github.com/lesbianeus) ♡ [tissue](https://github.com/afterpain) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/conciliate) ♡ [kemi](https://github.com/enmitye) ♡ [ryo](https://github.com/mavuikas) ♡ [fayne](https://github.com/duxlucens)
 
 [CLICK !](https://rentry.co/junecopies)
 
