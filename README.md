@@ -1,8 +1,10 @@
 <div align="center">
 
-#### <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_8a8c954f3a004ecc1a055e63ea6b1d35_4483ad87_75.webp" width=20> remaking . . . <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_244cc609afedd4a43a0d4e2cdeb5d7eb_0586d68e_75.webp" width=20>
+##### does your heart yearn to be the center of attention ,
 
-<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_c92c64114175cab9db30da0931dd8cca_83a3fa0b_1280.webp" width=305>  
+<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_6c6c92230c83a1b7f27ec15c7d3550be_35702b75_1280.webp" width=305>  
+
+##### —　or to dance alone on the snowy plains ?　♪
 
 ###### links for info byiㅤ&ㅤsign my ata :P
 
@@ -10,8 +12,6 @@
 
 
 [RENTRY !](https://rentry.co/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/eye.webp" width=30>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
-
-<img src="https://file.garden/aRliYxn-C17HIW_i/mizimizi.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/zomst.png" width=105> <img src="https://file.garden/aRliYxn-C17HIW_i/suaa.png" width=105>
 
 ###### cherished : [cyri](https://github.com/lesbianeus) ♡ [tissue](https://github.com/afterpain) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/conciliate) ♡ [kemi](https://github.com/enmitye) ♡ [ryo](https://github.com/mavuikas) ♡ [fayne](https://github.com/duxlucens)
 
