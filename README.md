@@ -8,7 +8,7 @@
 
 ###### links for info byiㅤ&ㅤsign my ata :P
 
-![](https://komarev.com/ghpvc/?username=reiningcloud&color=856aad&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
+![](https://komarev.com/ghpvc/?username=reiningcloud&color=468DD8&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
 
 
 [RENTRY !](https://rentry.co/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
