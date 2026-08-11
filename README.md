@@ -11,7 +11,7 @@
 ![](https://komarev.com/ghpvc/?username=reiningcloud&color=468DD8&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
 
 
-[RENTRY !](https://rentry.co/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
+[INFO !](https://repris.org/avatarofgreed))‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)
 
 ###### cherished : [cyri](https://github.com/lesbianeus) ♡ [tissue](https://github.com/afterpain) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/conciliate) ♡ [kemi](https://github.com/enmitye) ♡ [ryo](https://github.com/mavuikas) ♡ [fayne](https://github.com/duxlucens)
 
