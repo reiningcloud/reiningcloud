@@ -13,8 +13,13 @@
 
 [REPRI !](https://repris.org/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/tumblr_4c3561eef1aecaffc9435f9b95f57bac_ee1df63a_75.webp" width=25> ‎ ㅤ[LISTO !](https://listography.com/sayeonlee)
 
-###### cherished : [cyri](https://github.com/lesbianeus) ♡ [tissue](https://github.com/afterpain) ♡ [fork](https://github.com/httpsfork) ♡ [ao](https://github.com/conciliate) ♡ [kemi](https://github.com/enmitye) ♡ [ryo](https://github.com/mavuikas) ♡ [fayne](https://github.com/duxlucens)
+<details>
+  <summary> ♡ </summary>
 
-[CLICK !](https://rentry.co/junecopies)
+###### bff ever　[cyri](https://github.com/lesbianeus)　
+###### mental hospital　[tissue](https://github.com/afterpain)　[fork](https://github.com/httpsfork)　[ao](https://github.com/conciliate)　[ryo](https://github.com/mavuikas)　
+###### rock polycule　[fayne](https://github.com/duxlucens)　[kuni](https://github.com/constrz)　[rae](https://github.com/THEFA1THFUL)　[meii](https://github.com/DearMeii)
+ 
+</details
 
 </div>
