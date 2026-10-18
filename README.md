@@ -1,17 +1,17 @@
 <div align="center">
 
-#### <img src="https://file.garden/aRliYxn-C17HIW_i/nonochann.webp" width=65>no time for hesitation ~ !
+#### <img src="https://file.garden/aRliYxn-C17HIW_i/nonochann.webp" width=65> no time for hesitation ~ !
 
 <img src="https://file.garden/aRliYxn-C17HIW_i/nonokachan.webp" width=340>  
 
-##### let ' s have some fun together !　♪ <img src="https://file.garden/aRliYxn-C17HIW_i/nonoka.webp" width=65>
+##### let ' s have some fun together !　♪ <img src="https://file.garden/aRliYxn-C17HIW_i/nonoka.webp" width=60>
 
 ###### links for info byiㅤ&ㅤsign my ata :P
 
 ![](https://komarev.com/ghpvc/?username=reiningcloud&color=468DD8&style=plastic&label=　　raindrops　𓈒∘☁︎　　)  
 
 
-[REPRI !](https://repris.org/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/bunninono.png" width=35>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/bunny.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/bunninono.png" width=30> ‎ ㅤ[LISTO !](https://listography.com/sayeonlee)
+[REPRI !](https://repris.org/avatarofgreed)‎ ‎ ‎ ‎‎‎‎‎  <img src="https://file.garden/aRliYxn-C17HIW_i/bunninono.png" width=35>‎‎ㅤ  [STRAWPAGE !](https://reinyjune.straw.page)‎  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/bunny.webp" width=25>‎ ‎ ㅤ[ATABOOK !](https://reindrop.atabook.org)  ‎ ‎‎ ‎‎‎ ‎ ‎‎<img src="https://file.garden/aRliYxn-C17HIW_i/bunninono.png" width=35> ‎ ㅤ[LISTO !](https://listography.com/sayeonlee)
 
 <details>
   <summary> ♡ </summary>
