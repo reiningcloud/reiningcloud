@@ -2,7 +2,7 @@
 
 #### <img src="https://file.garden/aRliYxn-C17HIW_i/nonochann.webp" width=65> no time for hesitation ~ !
 
-<img src="https://file.garden/aRliYxn-C17HIW_i/nonokachan.webp" width=340>  
+<img src="https://file.garden/aRliYxn-C17HIW_i/nonokachan.webp" width=300>  
 
 #### let ' s have some fun together !　♪ <img src="https://file.garden/aRliYxn-C17HIW_i/nonoka.webp" width=60>
 
